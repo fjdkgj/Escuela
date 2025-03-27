@@ -1,4 +1,4 @@
 # Escuela
 
 Jorge Rosbel Portal Rusindo
-ingeniería informática 
+55932888
